@@ -1,5 +1,5 @@
 
-### Get this product for $5
+### Get this product for $5.00
 
 <i>Packt is having its biggest sale of the year. Get this eBook or any other book, video, or course that you like just for $5 each</i>
 
